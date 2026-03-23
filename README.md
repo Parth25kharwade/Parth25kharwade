@@ -6,8 +6,8 @@
 
 ---
 
-> *"I don't want to conquer anything. I just think the guy with the most freedom in this whole ocean... is the Pirate King!"*
-> — **Monkey D. Luffy** 🍖
+> *"Wierd than you think"*
+> 
 
 ---
 
